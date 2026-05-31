@@ -1,3 +1,3 @@
 <div align="center">
 
-![hs](https://file.garden/aWda6_hwaGcNwjuj/yuri.png)
+![hs](https://files.catbox.moe/l8pm0z.png)
