@@ -2,5 +2,5 @@
 
 
 <sub> iwcuf   。  
-    avoidant &
-      adult w an outside life. </sub>
+    semi active &
+        employed. </sub>
