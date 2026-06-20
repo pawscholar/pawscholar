@@ -1,9 +1,9 @@
 <div align="center">
 
 
-<sub> iwcuf   。  
-    semi active &
-        employed. </sub>
+<sub> please    
+    i just  wanna go
+        home. </sub>
 
   <img src="https://file.garden/aWda6_hwaGcNwjuj/soleum.png" width="auto" align="left">
   
