@@ -20,5 +20,5 @@ any kind of drama - incest </sub>
 
 <sub>
   <br> main interests : <br> 
-   twst - adwd - vocaloid </sub>
+   twst - adwd - gsgw </sub>
   
