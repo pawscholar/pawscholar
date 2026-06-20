@@ -8,6 +8,7 @@
 <details>
   <summary> dni</summary>
 
-1. under 16
-2. any kind of drama
+<sub>
+  under 16
+ any kind of drama </sub>
   </details>
