@@ -25,5 +25,5 @@
   <summary>  3. </summary>
 
 <sub>
-  <br> main interests : <br> twst - adwd - gsgw - kpop</sub>
+  <br> main interests : <br> twst - csm - gsgw - kpop</sub>
   
